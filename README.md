@@ -1,0 +1,1 @@
+# Gaia-lab-pemanasan-global-kelas-X-
